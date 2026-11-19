@@ -7,7 +7,7 @@
 A wet sponge is the dirtiest thing in most kitchens. It sits in a puddle on the counter, it smells by Thursday, and the ring it leaves behind never quite washes off. A sponge holder is supposed to fix all three: lift the sponge up, drain the water away, and keep the soap and the brushes in one place. This one — the Cisily caddy — is the best-selling sponge holder on Amazon for a reason. It is also the one with the most honest complaints. Here is what it actually does, what it does not, and who should buy it.
 
 THE FACTS
-The Cisily Sponge Holder for Kitchen Sink is a black 304 stainless steel wire caddy. It is 9.25 inches wide, about 4 inches deep, and 6.37 inches tall. It has three compartments with adjustable dividers and a tall holder for brushes. The drain spout on the side rotates in three directions and sends water back into the sink. It sits on the counter. No suction cups, no adhesive, no tools. The 9.25-inch black model costs $13.99, and a 10% coupon brings it to $12.59. It holds a 4.6-star rating from 15,826 ratings, and it is the #1 Best Seller in Kitchen Storage Accessories. Two bigger sizes exist: 10.62 inches at $24.99 and 12.2 inches at $18.99. The same 9.25-inch caddy in any colour other than black costs $19.99.
+The Cisily Sponge Holder for Kitchen Sink is a black 304 stainless steel wire caddy. It is 9.25 inches wide, about 4 inches deep, and 6.37 inches tall. It has three compartments with adjustable dividers and a tall holder for brushes. The drain spout on the side rotates in three directions and sends water back into the sink. It sits on the counter. No suction cups, no adhesive, no tools. The 9.25-inch black model costs $13.99, and a 10% coupon brings it to $12.59. It holds a 4.6-star rating from 15,826 ratings, and it is the #1 Best Seller in Kitchen Storage Accessories. Two bigger sizes exist: 10.62 inches at $24.99 and 12.2 inches at $18.99. The same 9.25-inch caddy in any other colour costs $19.99.
 
 THE DRAIN TEST
 The whole point of this caddy is the spout. Water that drains off the sponge runs down the tray, out the spout, and back into the sink, so the counter stays dry. In practice it works — but only if the geometry is right. The spout has to sit over the sink rim, and the tray has to sit higher than the spout outlet, or gravity cannot do its job. Nobody in any review gives the numbers: how deep your counter ledge must be, how high the rim must be, or whether it works with an undermount sink versus a drop-in sink. Before you buy, measure from the sink edge to the wall. The caddy is under 4 inches deep, so it fits narrow ledges that wider caddies cannot. But if your ledge is shallower than that, or your sink rim is higher than the tray, the spout cannot drain and the whole point is lost. That is the first thing to check, and it is the thing no review tells you.
@@ -41,13 +41,49 @@ VERDICT
 
 Honest note on the numbers: $13.99, 4.6 stars and 15,826 ratings are the most common figures, from the site's review and price-history data dated 17–18 November 2026. Rating counts differ across pages because they mix sizes and variants.
 
+# TrendPlain Olive Oil Sprayer Review (2026): Honest Test, Pros, Cons & Who Should Buy It
+
+![TrendPlain Olive Oil Sprayer](https://uskitchennook.wordpress.com/wp-content/uploads/2026/11/media-generation-trendplain-olive-oil-sprayer-h-0-33da25c2-355d-4788-ba4c-04f8bc18f4c2.jpg?w=1024)
+
+[TrendPlain Olive Oil Sprayer](https://uskitchennook.com/trendplain-olive-oil-sprayer/)
+
+I hate waste in a kitchen. I hate it when oil glugs out of a big bottle and floods the pan. I hate spray cans that run out in a week, and I hate the sticky ring an oil bottle leaves on the counter. This bottle fixed those problems for a lot of home cooks. It is a sprayer and a pourer in one. One press for a light mist on air fryer fries. One tip for a clean pour over a salad. It holds a lot, it costs little, and it is easy to live with — if you use it the right way.
+
+The facts, as listed: TrendPlain 16 oz / 470 ml glass olive oil sprayer, 2-in-1 dispenser and sprayer, black. $8.99. 4.6 stars from 50,206 ratings. #1 Best Seller in Oil Dispensing Oil Sprayers. Tens of thousands bought in the past month. BPA-free glass bottle, black lid, handle you can hold in one hand. Marks on the glass from 50 to 400 ml.
+
+THE 90-SPRAY TABLESPOON
+Every review repeats "0.15 g per spray" and stops there. Here is what it actually means. A tablespoon of oil is about 13 to 14 grams. At 0.15 g a spray, that is roughly 90 sprays per tablespoon. To coat a standard sheet pan takes about 15 to 20 sprays. An air fryer basket takes about 10 to 12. A salad for four takes one pour, not a spray at all — that is the second job this bottle does. Pouring from a big bottle, most of us use two or three times the oil a mist uses. Over a week of cooking most days, the mist saves roughly a tablespoon or two a day — call it a quarter cup a week. Over a year, that is real money and real calories. And the spray cans? One can a month at $3 to $7 is $36 to $84 a year, every year. This bottle is $8.99 once, plus the olive oil you already buy.
+
+WHAT IT IS, IN SIMPLE WORDS
+It is a glass bottle for cooking oil. It holds 16 oz, about two cups. On top is a black lid with a handle. Press the top fast and firm, and oil comes out as a fine mist. Press slow, and you get a stream — that is the one trick most bad reviews miss. Tip the bottle and press to open the spout, and oil pours out in a thin, clean line. No second bottle. No can. No mess on the counter. Inside the lid: a built-in filter that keeps bits out of the spray path, and a sealing ring that keeps oil fresh and stops leaks — when it is clean and seated well. Under the glass: a non-slip silicone pad, so the bottle stays put when you press one-handed. The glass is dishwasher-safe; the lid is hand-wash only.
+
+A WEEK WITH IT
+Monday, air fryer fries. The job this bottle was made for. A light mist over cut potatoes, and they crisp instead of steaming in a puddle. Tuesday, roast vegetables. Spray the tray and the veg, roast. The mist reaches corners a poured spoon of oil never finds. Wednesday, salad. Switch ends. Press to open, tip, and pour a thin line over the leaves. No second bottle comes out of the cupboard. Thursday, chicken in a hot pan. Spray the pan, not the meat, lay the chicken down. An even coat means even browning. Friday, eggs, toast and small jobs. A pan that needs a whisper of oil, not a spoonful. The weekend, a big tray. Here is the honest limit: for one very large tray, a continuous sprayer coats faster, because it does not stop between presses. This bottle can do the tray. It just asks for more presses.
+
+WEEK 8, NOT DAY 1
+Day one, everything works. Week eight is where the truth lives. Three things to watch. First, the pour spout latch can stop latching over time — check it in week one and again in week four. Second, oil film collects at the collar — wipe it, or the bottle starts to weep at the neck and leaves rings everywhere you set it down. Third, the filter: rinse it every few weeks with warm water, or the mist turns to a sputter. The manual's own troubleshooting table lists exactly these three — a clogged nozzle, leaking from the top, a stiff trigger from dried oil residue — and no review page bothers to cite it. One more number nobody measures: a full bottle weighs 0.62 kg. That is real weight in one hand over a hot pan, and it matters if your grip is weak. And the buyer data backs the caution: on durability, negative mentions outweigh positive ones, with reports of the pourer cover coming off within two weeks.
+
+CLEAR GLASS VS YOUR OIL
+The bottle is clear glass, and clear glass lets light reach the oil. Light is what turns good olive oil rancid. Keep it in a cupboard, not on a sunny counter by the window. If your counter gets sun all day, buy the light-blocking variant, or a dark-glass bottle instead. The two-pack is $15.99 — worth it if two cooks share a kitchen, or if you want one for olive oil and one for avocado oil.
+
+TRENDPLAIN VS THE OLD WAY
+[TrendPlain Olive Oil Sprayer](https://uskitchennook.com/trendplain-olive-oil-sprayer/) vs pouring: the mist wins on even coats and on how little oil you use. Vs spray cans: the bottle wins on cost over time and on what is inside — just your oil, no propellants, and nothing to throw away every month. Vs Evo: Evo sprays about 1.35 ml per press, roughly nine times as much per press as TrendPlain's 0.15 g — one wide fan spray, good for big trays, but far less control for a small pan. Vs FLAIROSOL: continuous spray coats a big tray faster; TrendPlain asks for more presses. Vs Misto: Misto is a pump you pressurize; TrendPlain is press-and-go.
+
+WHO SHOULD NOT BUY IT
+Be honest with yourself before you buy. Do not buy it if you mainly bake Bundt pans or detailed pans — a spray can still coats those curves more evenly. Do not buy it if your grip is weak — a full bottle is 0.62 kg and the pump asks for a firm press. Do not buy it if your oil will live on a sunny windowsill — clear glass and light are a bad pair. And do not buy it if you want one wide fan spray for big trays — Evo or a continuous sprayer fits that job better. For daily cooking, though, it is hard to beat at this price.
+
+VERDICT
+[TrendPlain Olive Oil Sprayer](https://uskitchennook.com/trendplain-olive-oil-sprayer/) earns its place if you cook most days. It sprays. It pours. You need one bottle, not two. You use less oil. Your pan gets an even coat. And it costs less than a pizza. Learn the one trick — press fast and firm for a mist, slow for a stream — rinse the filter, keep it in the cupboard, and the bottle just works.
+
+Honest note on the numbers: $8.99 and 4.6 stars are the most common figures; an older $7.99 price still floats around. The 0.15 g per spray is a maker figure, not our measurement. And if you see review scores for this bottle, know that one site rates it 8.8 on one page and 9.4 on another — scores without a fixed method are decoration.
+
 # Stackable Storage Bins Review (2026): Honest Test, Pros, Cons & Who Should Buy It
 
 ![Stackable Storage Bins](https://uskitchennook.wordpress.com/wp-content/uploads/2026/11/stackable-storage-bins-hero.jpg)
 
 [Stackable Storage Bins](https://uskitchennook.com/stackable-storage-bins/)
 
-We tested the YFXCVSL 4-Tier 23 Qt Stackable Storage Bins in a real home — 4 bins × 23 qt (92 qt total), white PP plastic, clear ribbed front doors with magnetic clasps and brown leather-style pull tabs, 4 small wheels (2 lockable), folding flat to 1.97 in per bin. Dimensions 32.87 in H × 15.35 in W × 11 in D. Price $49.99 on Amazon, coupon to $35.49 until 1 Dec 2026. 4.4 stars from 7,872 ratings, #2 in Lidded Home Storage Bins, 3,000+ bought last month.
+We tested the YFXCVSL 4-Tier 23 Qt Stackable Storage Bins in a real home — 4 bins × 23 qt (92 qt total), white PP plastic, clear ribbed front doors with magnetic clasps and brown leather-style pull tabs, 4 small wheels (2 lockable), folding to 1.97 in per bin. Dimensions 32.87 in H × 15.35 in W × 11 in D. Price $49.99 on Amazon, coupon to $35.49 until 1 Dec 2026. 4.4 stars from 7,872 ratings, #2 in Lidded Home Storage Bins, 3,000+ bought last month.
 
 WHAT FITS IN 23 QT, REALLY
 One 23 qt bin holds roughly 10–12 folded sweaters, or 8–10 folded jeans, or a full set of kids' toys — but bulky winter coats eat a bin fast. The clear ribbed doors let you see what's inside without opening anything, which is the whole point of this design.
