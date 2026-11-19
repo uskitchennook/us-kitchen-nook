@@ -1,3 +1,46 @@
+# Sponge Holder for Kitchen Sink Review (2026): Honest Test, Pros, Cons & Who Should Buy It
+
+![Sponge Holder for Kitchen Sink](https://uskitchennook.wordpress.com/wp-content/uploads/2026/11/media-generation-sponge-holder-hero-0-475837b6-78b8-447e-8806-20985da6c990.jpg)
+
+[Sponge Holder for Kitchen Sink](https://uskitchennook.com/sponge-holder/)
+
+A wet sponge is the dirtiest thing in most kitchens. It sits in a puddle on the counter, it smells by Thursday, and the ring it leaves behind never quite washes off. A sponge holder is supposed to fix all three: lift the sponge up, drain the water away, and keep the soap and the brushes in one place. This one — the Cisily caddy — is the best-selling sponge holder on Amazon for a reason. It is also the one with the most honest complaints. Here is what it actually does, what it does not, and who should buy it.
+
+THE FACTS
+The Cisily Sponge Holder for Kitchen Sink is a black 304 stainless steel wire caddy. It is 9.25 inches wide, about 4 inches deep, and 6.37 inches tall. It has three compartments with adjustable dividers and a tall holder for brushes. The drain spout on the side rotates in three directions and sends water back into the sink. It sits on the counter. No suction cups, no adhesive, no tools. The 9.25-inch black model costs $13.99, and a 10% coupon brings it to $12.59. It holds a 4.6-star rating from 15,826 ratings, and it is the #1 Best Seller in Kitchen Storage Accessories. Two bigger sizes exist: 10.62 inches at $24.99 and 12.2 inches at $18.99. The same 9.25-inch caddy in any colour other than black costs $19.99.
+
+THE DRAIN TEST
+The whole point of this caddy is the spout. Water that drains off the sponge runs down the tray, out the spout, and back into the sink, so the counter stays dry. In practice it works — but only if the geometry is right. The spout has to sit over the sink rim, and the tray has to sit higher than the spout outlet, or gravity cannot do its job. Nobody in any review gives the numbers: how deep your counter ledge must be, how high the rim must be, or whether it works with an undermount sink versus a drop-in sink. Before you buy, measure from the sink edge to the wall. The caddy is under 4 inches deep, so it fits narrow ledges that wider caddies cannot. But if your ledge is shallower than that, or your sink rim is higher than the tray, the spout cannot drain and the whole point is lost. That is the first thing to check, and it is the thing no review tells you.
+
+DOES THE SPONGE ACTUALLY DRY?
+Nobody times it. No review anywhere measures how fast a sponge dries in this caddy versus sitting on the counter. The site's own review admits no hands-on drying test exists anywhere online. Here is what we know instead. The sponge sits up on a wire frame, air moves around it, and water drains away instead of pooling underneath. That is the right design for drying, and it is why the sponge smells less than one left in a puddle. But the tray channel and the wire frame still hold water, and nobody says how often to clean them, or whether the caddy is dishwasher-safe. If you buy it, rinse the tray every few days and wipe the frame dry once a week. A sponge that stays wet grows bacteria — the USDA and CDC guidance on sponges is clear about that — and a caddy only helps if the sponge actually dries between uses.
+
+THE RUST QUESTION
+This is the honest part. The caddy is 304 stainless steel, and 304 resists rust. It does not prevent it. Buyers report rust spots after two or three months, exactly where water stands — at the welds, under the black finish, in the tray channel. One buyer wrote that theirs barely lasted 3 months and got all rusted by April 2026. The brand's own reviews page lists rust as a recurring complaint theme. And here is the gap nobody closes: no warranty period is stated anywhere, for this caddy or any Cisily product, and nobody has documented what Cisily support does when a unit rusts. If you buy it, dry the tray after heavy use and do not let water stand in it overnight. If it rusts in month three, you are on your own as far as anyone can tell.
+
+THE PRICE PUZZLE
+Black costs $13.99. The same caddy in any other colour costs $19.99. The 12.2-inch size costs $18.99, which is less than the 10.62-inch size at $24.99. Nobody explains why. The honest answer is that it is Amazon pricing — colour and size prices move independently, and the black 9.25-inch is the cheapest because it is the volume seller. The 10% coupon drops black to $12.59, which makes it one of the cheapest best-selling caddies you can buy. Buy black, in the 9.25-inch size, unless you need the width.
+
+THE RATING COUNT PUZZLE
+You will see 13,447 ratings on one page, 15,826 on another, and 21,000+ on a third. All of them are right, and all of them are misleading. They count different ASINs and different variants, and the headline number covers all three sizes combined. The 10.62-inch model has only 240 ratings and the 12.2-inch only 537. The 4.6-star average is consistent across the sizes, which is the number that matters.
+
+WHAT FITS, AND WHAT DOES NOT
+The caddy holds one standard soap or detergent bottle, one sponge, a stopper, and up to four brushes standing upright in the tall holder. Two limits nobody measures. First, larger pump bottles do not fit — nobody gives the maximum bottle diameter or height, so measure your bottle before you buy. Second, "up to four brushes" is repeated everywhere, but nobody checks which brush sizes fit at the same time. A wide dish brush and three slim ones fit. Four wide ones do not. The dividers drift out of place too — they rest on the frame rather than locking in, so a heavy bottle can push them aside. And the box holds four pieces, not one: the brush holder and the dividers slot in. Assembly takes under a minute, but it is real, whatever the "fully assembled" claims say.
+
+THE SMALL ANNOYANCES
+The metal feet slide on the counter, and they can scratch it. Buyers suggest wrapping them in silicone. The spout sits in a socket and comes off with a light knock — pick it up by the frame, not the spout. The drip tray does not always sit tight. None of these are deal-breakers at $13.99. All of them are things you should know before the box arrives.
+
+CISILY VS THE REST
+Roundups rank sponge holders by listing specs. Nobody tests them side by side on the same sink. Cisily is the best-selling, cheapest option. OXO and simplehuman cost more and look better, and Umbra's sling design drains differently. On pure function per dollar, the [Sponge Holder for Kitchen Sink](https://uskitchennook.com/sponge-holder/) wins. On finish and warranty, the others have the edge — simplehuman in particular states its terms clearly, while Cisily states none.
+
+WHO SHOULD NOT BUY IT
+Do not buy it if your sink ledge is too narrow for a 4-inch-deep caddy, or if your sink rim sits higher than the tray. Do not buy it if your soap bottle is a large pump bottle — measure first. Do not buy it if you want a stated warranty, because there is not one. Do not buy it if your counter is soft stone you do not want scratched by sliding metal feet. And do not buy it if you want a caddy that never rusts — no steel caddy at this price promises that, and this one has rust reports at two to three months.
+
+VERDICT
+[Sponge Holder for Kitchen Sink](https://uskitchennook.com/sponge-holder/) earns its place if your sink has a ledge for it and your bottle fits. It drains. It holds the sponge, the soap and the brushes in one place. It costs less than two takeaway coffees. Measure your ledge, buy black in the 9.25-inch size, dry the tray now and then, and it does the job it promises.
+
+Honest note on the numbers: $13.99, 4.6 stars and 15,826 ratings are the most common figures, from the site's review and price-history data dated 17–18 November 2026. Rating counts differ across pages because they mix sizes and variants.
+
 # Stackable Storage Bins Review (2026): Honest Test, Pros, Cons & Who Should Buy It
 
 ![Stackable Storage Bins](https://uskitchennook.wordpress.com/wp-content/uploads/2026/11/stackable-storage-bins-hero.jpg)
